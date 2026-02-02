@@ -1,1 +1,0 @@
-SPA Publication Group serves as a professional platform showcasing the organization’s vision, publications, and services. they provides clear information, easy navigation, and a user-friendly experience for authors, researchers, and readers worldwide to publish there content
